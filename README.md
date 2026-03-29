@@ -1,2 +1,2 @@
 # Assignment 1
-https://youtu.be/Qyh2TkIjO54
+[Click here to watch the Assignment 1 video] https://youtu.be/Qyh2TkIjO54
